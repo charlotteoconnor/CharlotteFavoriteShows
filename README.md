@@ -1,2 +1,2 @@
 # CharlotteShows
- My favorite shiws
+ My favorite shows
